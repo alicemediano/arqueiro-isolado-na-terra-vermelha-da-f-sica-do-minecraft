@@ -1,0 +1,1 @@
+# arqueiro-isolado-na-terra-vermelha-da-f-sica-do-minecraft
